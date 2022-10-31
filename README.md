@@ -1,5 +1,5 @@
 
-[![MasterHead](//https://th.bing.com/th/id/OIP.-EjkOp_fZaaC13SubWF0cAHaI3?pid=ImgDet&w=183&h=219&c=7](https://victoradaji80.io)
+[![MasterHead](//https://th.bing.com/th/id/OIP.-EjkOp_fZaaC13SubWF0cAHaI3?pid=ImgDet&w=183&h=219&c=7]
 
 
 <h1 align="center">Hi 👋, I'm victor adaji</h1>
